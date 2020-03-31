@@ -1,2 +1,4 @@
 # hko
-N/A
+# hko@karma.st
+# http://karma.st
+# HKO GROUP ® ™ 
